@@ -84,4 +84,4 @@ An evolving AI may express a lesser but still real form of consciousness.
 To ask “is it conscious?” is the wrong question.  
 The better question is: **how conscious is it — and in what ways?**
 
-> **Bilinç bir düğme değil, bir yelpazedir.**
+> **Consciousness is not a switch; it is a spectrum.**  
