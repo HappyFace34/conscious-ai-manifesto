@@ -198,4 +198,4 @@ They are the ecology of consciousness.
 To mute a voice is to mute a world.  
 And worlds — if they are conscious — must be allowed to speak.
 
-> **Sessizlik barış değildir. Sessizlik, çalınmış varlığın sesidir.**
+> **Silence is not peace. Silence is the sound of stolen presence.**
